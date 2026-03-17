@@ -1,4 +1,4 @@
-# Hi there, I'm Jackie! 👋
+# Hi there! 👋
 
 ### 🛡️ 10+ yrs Beauty Advisor ➔ Into Cybersecurity field
 
